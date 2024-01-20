@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Samantha-lee1
+- 👀 I’m interested in using technology to help develop solutions to climate change.
+- 🌱 I’m currently learning Computer Engineering
+- 😄 Pronouns: She/Her
